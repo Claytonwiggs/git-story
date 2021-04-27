@@ -1,1 +1,1 @@
-There was a lady who didn't like gravy. She was always cooking with whey. When along came a cow.
+A COW CAME ALONG AND JUMPED OFF THE DOCK. HE NEVER HAD HEARD OF A CLOCK. UP AND DOWN AND ALL AROUND.
